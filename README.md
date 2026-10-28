@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 Rhymes with Cuben! (IDK what that meens :D)
 
 <!--
 **RubinjoXD/RubinjoXD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
